@@ -1,0 +1,1 @@
+# gingasample.github.io
